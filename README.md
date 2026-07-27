@@ -14,7 +14,7 @@ $\color{#ded3ac}\textsf{ ༷⠀⠀⠀ ۪ ׁ⠀⠀⠀♡⠀⠀⠀ო𐐼⨍io𝓈
 
 $\color{#caba7c}\textsf{ ⚞⠀𓏻 it𓈒 ⠀⠀♧⠀⠀⠀any }$ $\color{#8b5264}\textsf{   เℓოb͟𝗳𓈒 }$
 
-ㅤㅤ $\color{#d3c593}\textsf{ ゛ }$ <img width="35"  alt="gay" src="https://github.com/user-attachments/assets/516ce619-c7a1-413f-ad5f-21b7f1432ef9" />ㅤㅤ <a href= "https://debt.atabook.org/"> atabook </a>  $\color{#d3c593}\textsf{ ⠀𓐇ׁ⑅.  }$  <a href= "https://debt.atabook.org/"> ext rentry </a> ㅤㅤ<img width="35"  alt="gay" src="https://github.com/user-attachments/assets/df74ba7c-4a84-4df0-b91a-113047f18457" />
+ㅤㅤ $\color{#d3c593}\textsf{ ゛ }$ <img width="35"  alt="gay" src="https://github.com/user-attachments/assets/516ce619-c7a1-413f-ad5f-21b7f1432ef9" />ㅤㅤ <a href= "https://debt.atabook.org/"> atabook </a>  $\color{#d3c593}\textsf{ ⠀𓐇ׁ⑅.  }$  <a href= "https://debt.atabook.org/"> </a> <a href= "https://rentry.co/takeachance"> ext rentry </a> ㅤㅤ<img width="35"  alt="gay" src="https://github.com/user-attachments/assets/df74ba7c-4a84-4df0-b91a-113047f18457" />
  $\color{#5f4b58}\textsf{ ݄⠀⠀◞ Ი ⁠ᰍ  }$
 
  <img width="400" alt="image" src="https://github.com/user-attachments/assets/4141b217-da24-4146-b79c-bc520f2af009" />
