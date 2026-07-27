@@ -10,7 +10,7 @@
 
 
 
-$\color{#ded3ac}\textsf{ ༷⠀⠀⠀ ۪ ׁ⠀⠀⠀e⠀⠀⠀ო𐐼⨍io𝓈o。⑅⠀⠀𓏼𓈒݁⠀⠀sเr𝒾u𝓈⠀⠀⠀𓈒݂݂  　}$
+$\color{#ded3ac}\textsf{ ༷⠀⠀⠀ ۪ ׁ⠀⠀⠀♡⠀⠀⠀ო𐐼⨍io𝓈o。⑅⠀⠀𓏼𓈒݁⠀⠀sเr𝒾u𝓈⠀⠀⠀𓈒݂݂  　}$
 
 $\color{#caba7c}\textsf{ ⚞⠀𓏻 it𓈒 ⠀⠀♧⠀⠀⠀any }$ $\color{#8b5264}\textsf{   เℓოb͟𝗳𓈒 }$
 
