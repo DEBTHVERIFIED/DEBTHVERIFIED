@@ -1,1 +1,1 @@
-hi <br> @STREETY-STREET @polkaca @VArtfultrust @t1redz0mb1e and @DappledSunlight are fatties
+@STREETY-STREET @polkaca @VArtfultrust @t1redz0mb1e and @DappledSunlight are fatties I love you sk8rs <br> hiro and Rin doesn't have github pretend I mentioned them too
