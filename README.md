@@ -1,1 +1,1 @@
-finally working on this now that I finished my rentry commissions hi coming soon ok
+never fucking mind I got 2 more commissions and u know I can't deny #freemoney someone save me <br> I'll design this soon
